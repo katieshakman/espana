@@ -19,6 +19,7 @@ Spain Plans
 * Cerralbo Museum (in the somewhat lavish house of a philanthropist)
 * Fundacion Mapfre Recoletos (some great free exhibitions)
 * Palacio de Cibeles (near Paseo near Prado)
+* List of free activities: http://travel.nationalgeographic.com/travel/city-guides/free-madrid-traveler/
 
 ## Barcelona
 * Accom. Booked thru 4/17-4/19
