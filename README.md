@@ -12,6 +12,7 @@ Spain Plans
   http://www.yelp.com/search?find_desc=Chase+Bank&find_loc=Madrid
 * Decadent Breakfast steps from Calle de Moratin: 
   Chocolat Madrid, Calle de Santa María, 30
+* Chocoate recommendation from Walter: trufa de chocolate at La Mallorquina, Plaza de la Puerta del Sol, 8 (also the Napolitana   de Chocolate is supposed to be amazing there)
 
 ## Barcelona
 * Accom. Booked thru 4/17-4/19
