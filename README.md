@@ -30,7 +30,7 @@ Spain Plans
 * Casa Batlló
 * Non-Gaudi cathedral (Richard suggested)
 * Aquarium (Shark tunnel at the aquarium!)
-* Monserrat + Colonia Guell or Cava Winery? http://gospain.about.com/od/catalonia/qt/barcadtmontser.htm
+* Monserrat + Colonia Guell (w/ Gaudi crypt) or Cava Winery? http://gospain.about.com/od/catalonia/qt/barcadtmontser.htm
 * Playa de la Mar Bella, Platja Balmins en Sitges
 
 ## Valencia
