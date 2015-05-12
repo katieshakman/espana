@@ -10,6 +10,8 @@ Spain Plans
   Hotel Mediodía, Plaza del Emperador Carlos V, 8
 * Some banks that may have Chase ATM:
   http://www.yelp.com/search?find_desc=Chase+Bank&find_loc=Madrid
+* Decadent Breakfast steps from Calle de Moratin: 
+  Chocolat Madrid, Calle de Santa María, 30
 
 ## Barcelona
 * Accom. Booked thru 4/17-4/19
