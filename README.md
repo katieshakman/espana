@@ -30,12 +30,15 @@ Spain Plans
 * Casa Batlló
 * Non-Gaudi cathedral (Richard suggested)
 * Aquarium (Shark tunnel at the aquarium!)
+* Monserrat + Colonia Guell or Cava Winery? http://gospain.about.com/od/catalonia/qt/barcadtmontser.htm
+* Playa de la Mar Bella, Platja Balmins en Sitges
 
 ## Valencia
 * Plan to visit 4/19 (b/t Barcelona check-out and Madrid check-in)
   NOTE: We should think about the fact that we will have bags with us.  Will want to be traveling light for this, or else rent a   car for the day. 
 * Paella
-* Beach/Ocean
+* Beach/Ocean, http://www.spain-holiday.com/Valencia-City-Centre/articles/the-five-best-unspoilt-beaches-around-valencia-city
+  Sagunto beach and roman town may be especially interesting
 
 ## Toledo
 * Plan to visit 4/20 (day trip from Madrid) 
