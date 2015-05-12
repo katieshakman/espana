@@ -8,11 +8,17 @@ Spain Plans
   Richard suggests seeing the Black Paintings (Goya)
 * Accom. Booked thru 4/19-4/21 
   Hotel Mediodía, Plaza del Emperador Carlos V, 8
-* Some banks that may have Chase ATM:
+* Some banks that may be good alternative to Chase ATM:
   http://www.yelp.com/search?find_desc=Chase+Bank&find_loc=Madrid
 * Decadent Breakfast steps from Calle de Moratin: 
   Chocolat Madrid, Calle de Santa María, 30
 * Chocoate recommendation from Walter: trufa de chocolate at La Mallorquina, Plaza de la Puerta del Sol, 8 (also the Napolitana   de Chocolate is supposed to be amazing there)
+* Palacio Real
+* Day/side trip to El Escorial Habsburg monastic palace? http://en.wikipedia.org/wiki/El_Escorial
+* Sorolla Museum (house, intimate)
+* Cerralbo Museum (in the somewhat lavish house of a philanthropist)
+* Fundacion Mapfre Recoletos (some great free exhibitions)
+* Palacio de Cibeles (near Paseo near Prado)
 
 ## Barcelona
 * Accom. Booked thru 4/17-4/19
