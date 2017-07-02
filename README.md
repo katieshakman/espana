@@ -33,6 +33,7 @@ Spain Plans
 * Aquarium (Shark tunnel at the aquarium!)
 * Monserrat + Colonia Guell (w/ Gaudi crypt) or Cava Winery? http://gospain.about.com/od/catalonia/qt/barcadtmontser.htm
 * Playa de la Mar Bella, Platja Balmins en Sitges
+* Montjuic fort and foothill on the coast, accessible by public transit.  Scenic cable cars from the train station at the foot of the hill up to the fort at the top.  Pleasant walk down the hill.  
 
 ## Valencia
 * Plan to visit 4/19 (b/t Barcelona check-out and Madrid check-in)
